@@ -1,0 +1,2 @@
+# StevSonMafia
+wydobycie sprzedasz detaliczna
